@@ -6,7 +6,7 @@ management and key stakeholders with informed decision making. Solid knowledge o
 management concepts and data quality tools as well as reporting, automation, and scripting. Expertise in data analytics and
 deploy industry knowledge to improve and build solutions, approaches, and business recommendations. Exceptional
 communication, analytical, problem-solving, and time-management skills. 
-[LinkedIn](https://https://www.linkedin.com/in/johnnyif/) 
+[LinkedIn](https://www.linkedin.com/in/johnnyif/) 
 
 ### Education
 
